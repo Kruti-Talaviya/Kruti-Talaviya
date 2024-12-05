@@ -39,7 +39,7 @@
 ---
 
 ## 📫 How to Reach Me:  
- [LinkedIn](www.linkedin.com/in/kruti-talaviya)  
+[LinkedIn](https://www.linkedin.com/in/kruti-talaviya)
 
 
 ---
